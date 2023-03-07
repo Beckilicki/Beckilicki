@@ -6,4 +6,4 @@ I think that grow as you go is the right approach to life.
 
 Improvise, adapt, overcome.
 
-Contact me at becacar@rocketmail.com
+Contact me at milos.popadic.beca@gmail.com
